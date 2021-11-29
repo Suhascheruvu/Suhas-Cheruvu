@@ -1,2 +1,0 @@
-# Suhas Cheruvu
- PORTFOLIO
